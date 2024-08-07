@@ -4,7 +4,7 @@
 - 💞️ We not looking to collaborate with anyone.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Our organization, **AVlivro Publishing**, is inspired by various literary and cinematic works (like **"Omen IV: The Awakening"**), blending genres to create unique experiences.
-- 
+
 **The waves of truth tends to extinguish fire of the falsehood**
 
 <!---
